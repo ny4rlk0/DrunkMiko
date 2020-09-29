@@ -21,9 +21,9 @@ Bu uygulamalarda, üçüncü taraflara ait reklamlar ve linkler yer alabilir. Bu
 
 Bu uygulamalarda yer alan sesli, yazılı ve görsel öğelerden ve yazılımlardan oluşan bütün içeriğe ilişkin her türlü telif hakkı Nyarlko’a aittir. Herhangi bir uygulamamızı veya bu uygulamaların telif haklarıyla korunan içeriğini; kopyalama, çoğaltma, yeniden yayımlama, parçalarına ayırma, tekrar kamuya sunma vb. eylemlerde bulunmayacağınızı kabul etmektesiniz.
 
-Burada belirtilen koşullarla ilgili görüş ve önerilerinizi, destek46785634@gmail.com mail adresinden bize iletebilirsiniz.
+Burada belirtilen koşullarla ilgili görüş ve önerilerinizi, nyarlko34@hotmail.com mail adresinden bize iletebilirsiniz.
 
 Nyarlko; bu Gizlilik Politikası ve Kullanım Koşulları metninde değişiklik yapabilir. Yapılan değişiklikler anında yürürlüğe girecektir. Değişiklik yaptığımız tarihi, "son güncelleme tarihi" olarak en alt kısımda belirtiriz.
 
 Son güncelleme tarihi:
-5 Nisan 2020
+29 Eylül 2020
