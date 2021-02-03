@@ -25,7 +25,7 @@ Burada belirtilen koşullarla ilgili görüş ve önerilerinizi, nyarlko34@hotma
 
 Nyarlko; bu Gizlilik Politikası ve Kullanım Koşulları metninde değişiklik yapabilir. Yapılan değişiklikler anında yürürlüğe girecektir. Değişiklik yaptığımız tarihi, "son güncelleme tarihi" olarak en alt kısımda belirtiriz.
 
-Ayrıca nyarlko burda açıkça belirtir ki uygulamamızı yükledikten sonra bütün peluş penguenleriniz ve ayılarınız bize aittir.
+Ayrıca nyarlko burada açıkça belirtir ki uygulamamızı yükledikten sonra bütün peluş penguenleriniz ve ayılarınız bize aittir.
 
 Son güncelleme tarihi:
 3 Ocak 2021
